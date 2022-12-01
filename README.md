@@ -1,1 +1,1 @@
-No description
+No manual
